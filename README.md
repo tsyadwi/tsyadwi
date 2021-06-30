@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tsyadwi
-- 👀 I’m interested in finance and intel
+- 👀 I’m interested in finance and intelligent
 - 🌱 I’m currently learning finance management
 - 💞️ I’m looking to collaborate on education
 - 📫 How to reach me at my instagram @tsyadwi
